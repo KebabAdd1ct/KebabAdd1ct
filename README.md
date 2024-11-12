@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KebabAdd1ct
-- 👀 I’m interested in Amateur Astronomy, Cooking, Woodworking/carving, Bushcrafting, Chess, Reading (specifically Non-Fiction), Working Out, Playing the Saz.
+- 👀 I’m interested in Amateur Astronomy, Cooking, Woodworking/carving, Bushcrafting, Chess, Reading (specifically Non-Fiction), Working Out, Playing the Saz, Memorising the Quran.
 - 🌱 I’m currently learning Frontend Developing and all of my named interests.
 - 💞️ I’m looking to collaborate on -
 - 📫 How to reach Discord, Reddit or Gmail/Email.
